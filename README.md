@@ -12,6 +12,7 @@ MEDRANO, Dave
 - ANTONIO, Jeverlyn
 - BACASEN, John Rendell
 - BADOL, Sarah Mae
+- BASILIO, Clint Kycer
 - BALANG, Leandro
 - BITAYAN, Remser
 - CADLEY, Mel
